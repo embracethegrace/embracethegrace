@@ -1,7 +1,8 @@
 <p align="center"> Hi there. Quite nice to meet you!
 <p align="center"> You may call me Myst , Anon , or John
 
-<img src="https://i.pinimg.com/236x/f3/da/b1/f3dab1c179ed064fe2b26db9fb3b60d3.jpg" alt="27 Doors, pressure, grace ideas in 2026 | john grace, the expendables,  fandom crossover"/>
+<p align="center"> <img src="https://64.media.tumblr.com/2bf3ce36742641eeb5f01517ea3fc53c/84d9ff5f5d869a84-27/s540x810/d035135d5342056282ac4f636244775854a254e3.pnj" alt="endless torment trio | Explore Tumblr posts and blogs | Tumgik"/><img width="540" height="322" alt="image" src="https://github.com/user-attachments/assets/09fb5991-f5e9-44ae-910b-13153fcef969" />
+
 
 
 <p align="center"> FEW THINGS TO KNOW ABOUT ME :
