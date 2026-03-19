@@ -1,7 +1,7 @@
 <p align="center"> Hi there. Quite nice to meet you!
 <p align="center"> You may call me Myst , Anon , or John
 
-<p align="center"> <img src="https://pbs.twimg.com/media/G-2F2mva4AAbErn.png" alt="Zabooboo3 where i&#39;m i ? &quot; #zabooboo3 #AReGect #ReGect #zgect"/>
+<img src="https://i.pinimg.com/236x/f3/da/b1/f3dab1c179ed064fe2b26db9fb3b60d3.jpg" alt="27 Doors, pressure, grace ideas in 2026 | john grace, the expendables,  fandom crossover"/>
 
 
 <p align="center"> FEW THINGS TO KNOW ABOUT ME :
@@ -37,7 +37,13 @@
 <p align="center"> - Problematic kins , systems, and yumes. This does not span to all , but yes , they exist. If any of these fall into line with characters like Val from HH or LeyLey fro TCOALL , keep away from me.
 <p align="center"> - 15 or younger! I am 18 and generally uncomfortable with anyone lower than 16 interacting with me. 
 
-<p align="center"> <img width="2000" height="202" alt="—Pngtree—labor day red dividing line_5404430" src="https://github.com/user-attachments/assets/468319b0-04ea-4f46-a208-08096e3155f6" />
+<p align="center"> · · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·
+
+<p align="center"> SPECIFIC DNI >> USERS
+  
+<p align="center"> @Bobette-Carolynne / @C00lfioso , claims to not be a pr0shipper, however me AND other friends have evidence against this claim ranging from thier discord username being "prosaken" to their mafioso skin having "c00lkidd kisser" on it, which would not be a problem if Mafioso wasnt generally a FORSAKEN character. Mafioso is not the Dream Game character's name, which gives insight that this person does not know much if not anything about Dream Game, nulling out the idea of the ship being anything but a proship if it goes under the name c00lfioso.
+
+<p align="center"> · · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·
 
 <p align="center"> FANDOM IWEC LIST (I have no fandoms that CANNOT int , though these ones should be cautious) :
 
@@ -51,7 +57,7 @@
 <p align="center"> - Hazbin Hotel + Helluva Boss [Or anything made by Vivziepop at all]
 <p align="center"> - Forsaken
 
-<p align="center"> <img width="2000" height="202" alt="—Pngtree—labor day red dividing line_5404430" src="https://github.com/user-attachments/assets/468319b0-04ea-4f46-a208-08096e3155f6" />
+<p align="center"> · · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·
 
 <p align="center"> FANDOM LIST (WARNING LOOOOOONG LIST)
   
