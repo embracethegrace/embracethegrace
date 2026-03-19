@@ -60,20 +60,16 @@
 
 <p align="center"> · · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·
 
-<p align="center"> FANDOM LIST (WARNING LOOOOOONG LIST)
+<p align="center"> CURRENT INTEREST LIST
   
 <p align="center"> - SFAWTFE/ATCDTL
 <p align="center"> - A_Regect
 <p align="center"> - FNAF
 <p align="center"> - Dandy's World
-<p align="center"> - Forsaken (Only Interested In Forsaken OCs)
 <p align="center"> - Roblox Admins
 <p align="center"> - Roblox Myths
-<p align="center"> - Baldis Basics
-<p align="center"> - Creepypasta
 <p align="center"> - Minecraft ARG but the protagonist is a monster fucker
 <p align="center"> - Regretevator
-<p align="center"> - Sonic + Sonic.exe (SARK NOT INCLUDED 😭)
 <p align="center"> - The Last Guest
 <p align="center"> - Roblox GRACE
 <p align="center"> - TF2
@@ -81,29 +77,15 @@
 <p align="center"> - Die of Death
 <p align="center"> - Pizza Game
 <p align="center"> - Undertale + Sans AU
-<p align="center"> - Wonder Over Yonder
 <p align="center"> - Luigi's Mansion (Or literally anything with Luigi in it)
 <p align="center"> - The Knocker , The Obsessed , The Man From The Shadows
 <p align="center"> - KinitoPet
-<p align="center"> - Mob School
 <p align="center"> - DHMIS
-<p align="center"> - Marvel
-<p align="center"> - DC
-<p align="center"> - TMNT (all vers)
 <p align="center"> - Pressure
-<p align="center"> - Cuphead
 <p align="center"> - Myth Of The Machine
-<p align="center"> - Hello John Doe
-<p align="center"> - Slenderbrothers
 <p align="center"> - Doors + Rooms
 <p align="center"> - Minecraft Myths
-<p align="center"> - May Madness
-<p align="center"> - Bugbo
-<p align="center"> - FnF
 <p align="center"> - C00lkiddo Archives
-<p align="center"> - Nyan Cat
-<p align="center"> - MLP
-<p align="center"> - Cartoon Cat
 <p align="center"> - TADC
 <p align="center"> - Minesweeper Plus
 <p align="center"> - Freak Fortress 2
