@@ -40,10 +40,16 @@
 
 <p align="center"> · · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·
 
-<p align="center"> SPECIFIC DNI >> USERS
+<p align="center"> THE WALL OF MY FAVORITEST PEOPLE EVERRRRRR ꉂ(˵˃ ᗜ ˂˵)
   
-<p align="center"> @Bobette-Carolynne / @C00lfioso , claims to not be a pr0shipper, however me AND other friends have evidence against this claim ranging from thier discord username being "prosaken" to their mafioso skin having "c00lkidd kisser" on it, which would not be a problem if Mafioso wasnt generally a FORSAKEN character. Mafioso is not the Dream Game character's name, which gives insight that this person does not know much if not anything about Dream Game, nulling out the idea of the ship being anything but a proship if it goes under the name c00lfioso.
-
+<p align="center"> @FIGURE-009
+<p align="center"> @skeetingonby9
+<p align="center"> @SwAeJuDiN0li
+<p align="center"> @bunnymael
+<p align="center"> @worldsfiinest
+<p align="center"> @gambler-777c
+<p align="center"> @pr0bhal14
+  
 <p align="center"> · · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·· · ─ ·𖥸· ─ · ·
 
 <p align="center"> FANDOM IWEC LIST (I have no fandoms that CANNOT int , though these ones should be cautious) :
